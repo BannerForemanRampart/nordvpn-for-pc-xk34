@@ -1,4 +1,4 @@
-# 
+# Windscribe VPN for PC | Windscribe VPN for Windows professional Plugin: server-locations & server-switching offers the most advanced Windscribe VPN for PC | Windscribe VPN for
 
 
 
